@@ -1,3 +1,7 @@
+layout: page
+title: "Salmo 1"
+permalink: /salmo1
+
 # Salmo 1
 
 Versetto 1. *\"BEATO\"*---vedi come questo Libro dei Salmi si apre con una benedizione, proprio come fece il famoso Sermone del nostro Signore sul Monte! La parola tradotta come "beato" è molto espressiva. La parola originale è al plurale, ed è una questione controversa se sia un aggettivo o un sostantivo. Da ciò possiamo imparare la molteplicità delle benedizioni che riposeranno sull'uomo che Dio ha giustificato, e la perfezione e grandezza della beatitudine che godrà. Potremmo leggerlo come "Oh, le beatitudini!" e possiamo ben considerarlo (come fa Ainsworth) come un giubilo acclamativo della felicità dell'uomo grazioso. Possa una simile benedizione riposare su di noi!
