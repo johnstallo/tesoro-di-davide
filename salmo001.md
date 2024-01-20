@@ -1,6 +1,8 @@
+---
 layout: page
 title: "Salmo 1"
 permalink: /salmo1
+---
 
 # Salmo 1
 
