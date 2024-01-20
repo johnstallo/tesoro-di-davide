@@ -2,7 +2,15 @@
 
 - [Salmo 1](./salmo001.md)
 - [Salmo 2](./salmo002.md)
-- Salmo 3
-- Salmo 4
-- Salmo 5
+- [Salmo 3](./salmo002.md)
+- [Salmo 4](./salmo002.md)
+- [Salmo 5](./salmo002.md)
+- [Salmo 6](./salmo002.md)
+- [Salmo 7](./salmo002.md)
+- [Salmo 8](./salmo002.md)
+- [Salmo 9](./salmo002.md)
+- [Salmo 10](./salmo002.md)
+- Salmo 11
+- Salmo 12
+- Salmo 13
   
