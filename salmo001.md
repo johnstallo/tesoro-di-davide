@@ -11,6 +11,7 @@ permalink: /salmo1
 **DIVISIONE**: *Il Salmo si compone di due parti: nella prima (dal versetto 1 alla fine del terzo) David illustra in cosa consiste la felicità e la beatitudine di un uomo pio, quali sono i suoi esercizi e quali benedizioni riceverà dal Signore. Nella seconda parte (dal versetto 4 alla fine) contrappone lo stato e il carattere degli empi, rivela il futuro e descrive, con un linguaggio incisivo, il loro destino finale.*
 
 ---
+<br />
 
 **Verso 1.** ***"BEATO"***---vedi come questo Libro dei Salmi si apre con una benedizione, proprio come fece il famoso Sermone del nostro Signore sul Monte! La parola tradotta "beato" è molto espressiva. La parola originale è al plurale, ed è un argomento controverso se sia un aggettivo o un sostantivo. Da ciò possiamo apprendere la molteplicità delle benedizioni che riposeranno sull'uomo che Dio ha giustificato, e la perfezione e grandezza della beatitudine di cui godrà. Potremmo leggerlo, "Oh, le beatitudini!" e possiamo ben considerarlo (come fa Ainsworth) come un'esclamazione gioiosa della felicità dell'uomo graziato. Possa la stessa benedizione riposare su di noi!
 

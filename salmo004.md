@@ -25,6 +25,7 @@ Su Neginoth, *cioè, su strumenti a corda, o* strumenti manuali, *che venivano s
 **DIVISIONE**. *Nel primo verso Davide implora l'aiuto di Dio. Nel secondo espone ai suoi nemici, e continua ad indirizzarsi a loro fino alla fine del verso 5. Poi dal verso 6 alla fine contrappone deliziosamente la propria soddisfazione e sicurezza con l'inquietudine degli empi nel loro miglior stato. Il Salmo è stato molto probabilmente scritto nella stessa occasione del precedente, ed è un altro fiore scelto dal giardino dell'afflizione. Felici noi che Davide fu provato, altrimenti probabilmente non avremmo mai ascoltato questi dolci sonetti di fede.*
 
 ---
+<br />
 
 **Verso 1**. Questo è un altro esempio dell'abitudine comune di Davide di invocare le misericordie passate come fondamento per il favore presente. Qui egli rivede i suoi Ebenezer e trae conforto da essi. Non è da immaginare che colui che ci ha aiutato in sei guai ci lasci nel settimo. Dio non fa le cose a metà e non smetterà mai di aiutarci finché ne avremo bisogno. La manna cadrà ogni mattina fino a quando non attraverseremo il Giordano.
 
